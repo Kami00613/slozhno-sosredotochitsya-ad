@@ -1,0 +1,1 @@
+#https://github.com/Kami00613/slozhno-sosredotochitsya-ad.git
